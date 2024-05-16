@@ -1,4 +1,1 @@
-hello ponytown it's me giorno
-i'm mostly on safe jojo pi OR 18 corner
-i mostly sit with my closest friends
-carrd has more info
+♡ hi it's me giorno, i'm usually on safe jojo pi OR 18 corner & i sit with my closest friends - more info in carrd
