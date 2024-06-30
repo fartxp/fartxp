@@ -1,2 +1,2 @@
-I don't have pants on
-"✧" in pony names usually means high kin
+I don't have pants on.
+"✧" in pony names usually means high kin. ok bye
